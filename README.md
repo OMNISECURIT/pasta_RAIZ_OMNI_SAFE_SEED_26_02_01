@@ -1,0 +1,1 @@
+# OMNIt safe seed
